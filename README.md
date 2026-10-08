@@ -1,1 +1,2 @@
-# Lubomir_Zubak
+# Lubomir Zubak
+## Multimedialne Systemy, 8.10.2026 
